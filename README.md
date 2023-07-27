@@ -1,0 +1,1 @@
+# TRAFO-TASARIM-Parametre-Hesabi
